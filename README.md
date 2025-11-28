@@ -23,4 +23,4 @@ Areas of interest: Data Analytics, Business Intelligence, and Visualization, Mac
 
 💼 LinkedIn : https://www.linkedin.com/in/vaibhavi-sunki-44639a357/
 
-📧 Email: vaibhavisunki20@email.com
+📧 Email: vaibhavisunki20@gmail.com
